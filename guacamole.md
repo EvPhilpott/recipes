@@ -8,6 +8,6 @@
 *olive oil
 *Hello!
 ## Instructions
-*put one avocado into a bowl
+*remove the stone from an avocado
 
  
